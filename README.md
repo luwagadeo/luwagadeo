@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new tactics
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on github
-- 📫 luwagadeo4@gmail.com
+- 📫 luwagadeo4@gmail.com/+256705616048/+256782229386
 
 <!---
 luwagadeo/luwagadeo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
